@@ -1,4 +1,4 @@
-## Hakuna Matata 🤪
+## Ciao Amici 👻
 I am a Data Science student and an Artist.
 
 I won't say I know everything about my field but I do my best in learning new skills. I have multiple hobbies and I pick up a new hobby every week. 
